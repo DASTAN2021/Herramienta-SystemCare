@@ -4,7 +4,7 @@
 
 
 Esta opción  es  solo  para  instalar  o   comprar  appk  de   mantenimiento que le puede proteger a la computadora 
-y tambien tiene una opccion de sotware  adicionales que  podemos utilizar  para el mejoramiento de  la pc pero  estos  programas  tienen un programa adicional  y aqui detallo algunos mas importantes  como  por ejemplo
+y tambien tiene una opccion de sotware  adicionales que  podemos utilizar  para el mejoramiento de  la pc pero  estos  programas  tienen un costo  adicional  y aqui detallo algunos mas importantes  como  por ejemplo
 
 como es el IOBIT Malware Fighter pro que las caracteristicas  mas  infortantes son:
 
